@@ -8,7 +8,7 @@ DooDay is a simple, cute way to track your bowel movements, view your history, a
 
 If you have a question, need help using DooDay, or would like to report a problem, please contact:
 
-**Email:** YOUR-EMAIL-HERE
+**Email:** julie_leostar@yahoo.com
 
 We'll do our best to respond as soon as possible.
 
