@@ -50,4 +50,4 @@ This privacy policy may be updated if DooDay's features or privacy practices cha
 
 If you have questions about this privacy policy or DooDay's privacy practices, please contact:
 
-**Email:** YOUR-SUPPORT-EMAIL-HERE
+**Email:** julie_leostar@yahoo.com
